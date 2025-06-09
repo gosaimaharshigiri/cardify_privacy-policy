@@ -1,0 +1,1 @@
+# cardify_privacy-policy
